@@ -1,1 +1,1 @@
-# odin-recipes
+# I want to die
